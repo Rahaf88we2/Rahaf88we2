@@ -1,1 +1,13 @@
-[![Header](https://github.com/Rahaf88we2/Rahaf88we2/raw/master/profile.gif)](https://www.adamalston.com/)
+
+
+# Hi, I am Rahaf 🫶🏻👩🏻‍💻
+
+## About Me 
+
+👩🏻‍🎓 **BS in Mathematics 🧮 .** <br>
+📈 **Data Science** and **Machine-Learning** Enthusiast.<br>
+📚 **Self-motivated** and **Quick Learner**.<br>
+
+
+
+
